@@ -1,1 +1,0 @@
-# lumi-_-cognitive-navigator-master-node
